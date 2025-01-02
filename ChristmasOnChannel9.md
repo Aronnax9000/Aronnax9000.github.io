@@ -1,9 +1,8 @@
 # Christmas On Channel 9 
-
-For Mike Bolado  
-
 (Ode to Hans Gruber)  
+
 Tune: Winter Wonderland
+For Mike Bolado  
 
 Mister cow boy are you listening  
 while your undershirt's a glistening  
