@@ -11,7 +11,7 @@ I'm here to abscond with some bearer bonds
 John McClane you wouldn't understand  
 
 Theo cut all of the phone lines  
-Argyles safe though he needs more lines  
+Argyle's safe though he needs more lines  
 He's stuck unaware with a big teddy bear  
 John McClane you wouldn't understand  
 
