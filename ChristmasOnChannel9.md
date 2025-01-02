@@ -20,7 +20,7 @@ after all they offered you some booze
 I left the rug all kinda soggy  
 with what remains of Mister Akagi  
 He'll show you no strife for the rest of his life   
-(alt: Though that makes me a choad, I'll still get the code)
+(alt: Though that makes me a choad, I'll still get the code)  
 John McClane you couldn't understand  
 
 I've just slain your coke head homie  
