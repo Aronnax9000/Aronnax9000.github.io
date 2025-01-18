@@ -16,7 +16,8 @@ Your mate's waiting for you the last of her race
 just give her a minute to put on her face  
 
 Norwegians found her during Antartic night  
-then made an ill-fated whirly bird flight  
+antecedent to a whirly bird flight  
+Her voice was so husky as husky could be
 
 
 
