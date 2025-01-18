@@ -11,13 +11,14 @@ His mood is improving, his heart starts to sing
 To meet his new bride will be really The Thing  
 
 Oh Caveman oh caveman follow your dream  
-As Wilford Brimley and Kurt Russell screams  
-Your mate's waiting for you the last of her race  
+As Wilford Brimley and Kurt Russell scream  
+Your mate's waiting for you the last of your race  
 just give her a minute to put on her face  
 
 Norwegians found her during Antartic night  
-antecedent to a whirly bird flight  
-Her voice was so husky as husky could be
+Just antecedent to whirly bird flight  
+Her voice was so husky as husky could be  
+
 
 
 
