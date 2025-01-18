@@ -2,13 +2,13 @@
 
 I just received word from the Neanderthal Clone  
 Who recently learnt how to use him a phone  
-Researchers way down south at McMurdo Sound  
+Researchers down there at McMurdo Sound  
 Found a cavewoman froze under the ground  
 
 He's got a GoFundMe for a flight to the pole  
 to the shacks that they built up near to the ice hole  
 His mood is improving, his heart starts to sing  
-To have a new bride will be really The Thing  
+To meet his new bride will be really The Thing  
 
 Oh Caveman oh caveman follow your dream  
 As Wilford Brimley and Kurt Russell screams  
