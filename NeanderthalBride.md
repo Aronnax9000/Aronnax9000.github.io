@@ -17,7 +17,8 @@ just give her a minute to put on her face
 
 The wireless message was crackly at best  
 the signal cut out before he got the rest  
-
+everything's fine here and we're staying calm  
+just send some thermite and a thing of napalm  
 
 Norwegians found her during Antartic night  
 then made an ill fated whirly bird flight  
