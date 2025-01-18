@@ -15,8 +15,8 @@ As Wilford Brimley and Kurt Russell screams
 Your mate's waiting for you the last of her race  
 just give her a minute to put on her face  
 
-Norwegians found her during Antartic night
-then made an ill-fated whirly bird flight
+Norwegians found her during Antartic night  
+then made an ill-fated whirly bird flight  
 
 
 
