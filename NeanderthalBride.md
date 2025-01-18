@@ -15,10 +15,16 @@ As Wilford Brimley and Kurt Russell scream
 Your mate's waiting for you the last of your race  
 just give her a minute to put on her face  
 
+The wireless message was crackly at best
+the signal cut out before he got the rest
+
+
 Norwegians found her during Antartic night  
 Just antecedent to whirly bird flight  
 Her voice was so husky as husky could be  
 She's looking for something could it be a tree  
+
+
 
 
 
