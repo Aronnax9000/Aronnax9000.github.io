@@ -2,7 +2,7 @@
 
 I hate to be bearer of bad news  
 but your trailer's AC uses R-22  
-I got an old bottle worth its weight in gold 
+I got an old bottle worth its weight in gold  
 though it'll tear a new one in the ozone hole  
 
 I won't risk fixing it during the day  
