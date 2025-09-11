@@ -1,51 +1,42 @@
-Sign Up
-You’ll Never Leave Harlan Alive
-Patty Loveless
+# You’ll Never Leave Harlan Alive
+Patty Loveless  
 
-[Verse 1]
-In the deep dark hills of eastern Kentucky
-That's the place where I traced my bloodline
-And it's there I read on a hillside gravestone
-"You'll never leave Harlan alive"
+In the deep dark hills of eastern Kentucky  
+That's the place where I traced my bloodline  
+And it's there I read on a hillside gravestone  
+"You'll never leave Harlan alive"  
 
-[Verse 2]
-Oh my grandfather's dad crossed the Cumberland Mountains
-Where he took a pretty girl to be his bride
-Said, "Won't you walk with me, out of the mouth of this holler
-Or we'll never leave Harlan alive"
+Oh my grandfather's dad crossed the Cumberland Mountains  
+Where he took a pretty girl to be his bride  
+Said, "Won't you walk with me, out of the mouth of this holler  
+Or we'll never leave Harlan alive"  
 
-[Chorus 1]
-Where the sun comes up about ten in the morning
-And the sun goes down about three in the day
-And you fill your cup with whatever bitter brew you're drinkin'
-And you spend your life just thinkin' of how to get away
+Where the sun comes up about ten in the morning  
+And the sun goes down about three in the day  
+And you fill your cup with whatever bitter brew you're drinkin'  
+And you spend your life just thinkin' of how to get away  
 
-[Verse 3]
-No one ever knew there was coal in them mountains
-'Til a man from the northeast arrived
-Waving hundred dollar bills, said, "I'll pay for your minerals"
-But he never left Harlan alive
+No one ever knew there was coal in them mountains  
+'Til a man from the northeast arrived  
+Waving hundred dollar bills, said, "I'll pay for your minerals"  
+But he never left Harlan alive  
 
-[Verse 4]
-Grandma sold out cheap and they moved out west of Pineville
-To a farm where Big Richland River winds
+Grandma sold out cheap and they moved out west of Pineville  
+To a farm where Big Richland River winds  
 And I bet they danced them a jig
-And they laughed and sang a new song
-"Who said we'd never leave Harlan alive"
+And they laughed and sang a new song  
+"Who said we'd never leave Harlan alive"  
 
-[Verse 5]
-But the times they got hard and tobacco wasn't selling
-And old granddad knew what he'd do to survive
-He went and dug for Harlan coal
-And sent the money back to grandma
+But the times they got hard and tobacco wasn't selling  
+And old granddad knew what he'd do to survive  
+He went and dug for Harlan coal  
+And sent the money back to grandma  
 But he never left Harlan alive.  
 
-[Chorus 2]
-Where the sun comes up about ten in the morning
-And the sun goes down about three in the day
-And you fill your cup with whatever bitter brew you're drinkin'
+Where the sun comes up about ten in the morning  
+And the sun goes down about three in the day  
+And you fill your cup with whatever bitter brew you're drinkin'  
 And you spend your life digging coal
-From the bottom of your grave
+From the bottom of your grave  
 
-[Tag]
 You'll never leave Harlan alive
