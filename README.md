@@ -13,5 +13,5 @@ Songs
 - [Neanderthal Bride](NeanderthalBride.md)
 - [Nobody Likes it When You're Shad](shad.md)
 - [Kid's Table](kidstable.md)
-- (YoullNeverLeaveHarlanAlive.md)[You'll Never Leave Harlan Alive]
+- [You'll Never Leave Harlan Alive](YoullNeverLeaveHarlanAlive.md)
   
